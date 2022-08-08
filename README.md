@@ -1,2 +1,5 @@
-# crazy-hospital-doctor-dash-cheat-unlimited-diamonds-hacks
-Crazy Hospital Doctor Dash cheats unlimited diamonds Hacks tutorial
+# Crazy Hospital Doctor Dash cheats unlimited diamonds Hacks tutorial
+
+Crazy Hospital Doctor Dash cheats unlimited diamonds Hacks tutorial - In addition to treating patients, another priority of your hospital Co., Ltd. is to upgrade your hospital by introducing more employees and the latest equipment and expanding capacity. You can find all these options in the upgrade tab, which also provides an overview of the extended hospital. From here, you can upgrade the capacity, personnel and equipment of the center by clicking the dedicated button at the bottom of the display screen. Obviously, upgrades usually cost money. But not always. Many times, you can choose to watch ads in exchange for an upgrade. So, if you want to save money, you should always pay attention to free upgrades. Instead of rushing to upgrade, go back to treating patients and playing mini games until you can choose to watch ads in exchange for an upgrade. Don't forget to check frequently.
+
+[go here](https://growhunt.top/crazy-hospital-doctor-dash/)
